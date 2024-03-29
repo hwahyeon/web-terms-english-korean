@@ -1,1 +1,0 @@
-# web-terms-english-korean
